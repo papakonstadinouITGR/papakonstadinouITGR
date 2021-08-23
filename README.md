@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @papakonstadinouITGR
+- 👋 Hi, I’m @papakonstadinouIT
 - 👀 I’m interested in Web Development
 - 📫 How to reach me ( 2431076050 & support@papakonstadinou.com )
 
